@@ -1,1 +1,0 @@
-# -Inteli-M3-Campeonato-2025
